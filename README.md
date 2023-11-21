@@ -1,6 +1,7 @@
 # 机场推荐
 
-没啥水平，赚个佣金费：https://haita.io/reguser?aff=nZeNE5i2
+没啥水平，赚个佣金费：[官网](https://haita.io/reguser?aff=nZeNE5i2)
+
 85折优惠券：nZeNE5i2
 
 ## 海獭-haita(8.9/月50G)
